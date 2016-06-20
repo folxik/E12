@@ -14,3 +14,6 @@ https://docs.google.com/document/d/1BFYvDRjV3bFo5jbSED6otQuws-_SAm4X0Ww6EI6e0PE/
 
 #Arkusz 5:
 https://docs.google.com/document/d/1v-zi67Rx0Zkraa_pgzHgwu11woZ8GDVETAlvTa0oGMo/edit
+
+#Arkusz 6:
+https://drive.google.com/folderview?id=0Bz8See0pHofSX0VoRUdLeXRPWDg&usp=drive_web
